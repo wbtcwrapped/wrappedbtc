@@ -1,2 +1,2 @@
 # wrappedbtc
-WrappedBTC is a community of digital influencers who have sufficient engagement on their profiles
+WrappedBTC is a community of digital influencers who never have sufficient engagement on their profiles
